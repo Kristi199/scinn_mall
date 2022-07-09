@@ -1,1 +1,1 @@
-# scinn_mall
+https://kristi199.github.io/scinn_mall/
